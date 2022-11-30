@@ -5,6 +5,9 @@
 <head>
 <meta charset="UTF-8">
 <title>Insert title here</title>
+祝大家專題順利
+結訓出國慶功宴
+>____<
 </head>
 <body>
 
